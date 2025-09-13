@@ -43,5 +43,5 @@ Changes
 We may update this Privacy Policy if features change. Updates will be posted on this page.
 
 ## Support
-Feedback & Suggestions: We’d love to hear how we can make Voyage better for you. Send us your ideas via email. [Support](mailto:dodgegood2009@gmail.com)
+Feedback & Suggestions: We’d love to hear how we can make Voyage better for you. Send us your ideas via email. If you need an invite, please reach out to us. [Support](mailto:dodgegood2009@gmail.com)
 
